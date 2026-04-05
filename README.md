@@ -2,6 +2,8 @@
 
 <p align="center">
 semi-hiatus due to heavy workload of school
+
+if you're wondering why this account was newly made its because ive transferred accs
 </p>
 
 <img width="736" height="225" alt="1000067548" src="https://github.com/user-attachments/assets/c9f37430-86f2-4821-8850-5247d6d87531" />
