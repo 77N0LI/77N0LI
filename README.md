@@ -2,7 +2,9 @@
 
 <p align="center">
 semi-hiatus due to heavy workload of school
+</p>
 
+<p align="center">
 if you're wondering why this account was newly made its because ive transferred accs
 </p>
 
