@@ -1,3 +1,2 @@
 
-![cred-sraczkacore](https://i.postimg.cc/W1Rp5wYY/cred-sraczkacore.png)
-
+![me](https://static.wikia.nocookie.net/vsbattles/images/c/c1/Fire_Spirit_Cookie.png/revision/latest?cb=20211213152344)
